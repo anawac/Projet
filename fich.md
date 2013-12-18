@@ -1,1 +1,1 @@
-Vive la choucroute
+Vive RCA (Raja Athletic Club)
